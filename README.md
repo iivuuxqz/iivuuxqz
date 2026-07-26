@@ -67,7 +67,7 @@
          alt="Bakugo Apology">
 
 <p align="center">
-  <img src="deku.svg?v=4" alt="I'm sorry for everything" width="900">
+  <img src="deku.svg?v=4" alt="𝚂𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝙸 𝚍𝚘 𝚏𝚎𝚎𝚕 𝚕𝚒𝚔𝚎 𝙸'𝚖 𝚊 𝚏𝚊𝚒𝚕𝚞𝚛𝚎... 𝙱𝚞𝚝 𝚎𝚟𝚎𝚗 𝚜𝚘, 𝙸'𝚖 𝚗𝚘𝚝 𝚐𝚘𝚗𝚗𝚊 𝚐𝚒𝚟𝚎 𝚞𝚙 !" width="900">
 </p>
 
 </div>
