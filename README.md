@@ -24,12 +24,12 @@
   <h2>✦ ＢＥＦＯＲＥ ＹＯＵ ＩＮＴＥＲＡＣＴ ✦</h2>
 
   <p>
-        Check out my carrd !<br>
-        I get easily irritated, and have little to no self-restraint<br>
-        I can be pretty blunt<br>
-        I insult people 24/7<br>
-        I can be a little socially awkward and tend to be shy at first during in vcs especially<br>
-        I tend to reply late and have selective replies! I tend to struggle with understanding, so please be patient with me!!<br>
+        Please check my carrd! <br>
+        I can be rather mean as a joke but never actually mean it<br>
+        I  won't reply as much or quickly if I'm busy studying or calling/playing with friends or my lover.<br>
+        I often like to act close and friendly with others!<br>
+        I can be a little socially awkward with new people<br>
+        I tend to sometimes reply late and have selective replies<br>
         
   </p>
 
@@ -38,7 +38,7 @@
   <h2>✦ ＩＮＴＥＲＡＣＴ ✦</h2>
 
   <p>
-          People who reads/in the typology community!! <br>
+          People who reads/in the typology community!!<br>
            Manwha/manhua readers, visual novel fans, pjsk, alnst<br>
   </p>
 
