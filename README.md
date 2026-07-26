@@ -53,7 +53,7 @@
         Basic DNI criteria<br>
         Homophobic/transphobic<br>
         being rude to me for no reason<br>
-        Make jokes about harmful topics<br>
+        People are who racist<br>
         supports genocide<br>
         insulting my loved ones<br>
         Use slurs you cannot reclaim<br>
