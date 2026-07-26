@@ -47,14 +47,15 @@
   <h2>✦ ＤＯ ＮＯＴ ＩＮＴＥＲＡＣＴ ✦</h2>
 
   <p>
-        -14 DNI<br>
+        -15 DNI<br>
         Flirters<br>
+        Nswf acc<br>
         Basic DNI criteria<br>
-        Openly mock people<br>
-        Problematic behavior<br>
+        Homophobic/transphobic<br>
+        being rude to me for no reason<br>
         Make jokes about harmful topics<br>
-        Hate my kins, comfort characters, or ships<br>
-        Little use of tone tags (in certain situations)<br>
+        supports genocide<br>
+        insulting my loved ones<br>
         Use slurs you cannot reclaim<br>
         Proshipper, groomer, lolicon, etc
   </p>
