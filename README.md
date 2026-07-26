@@ -38,7 +38,7 @@
   <h2>✦ ＩＮＴＥＲＡＣＴ ✦</h2>
 
   <p>
-           Typology readers!!<br>
+          People who reads/in the typology community!! <br>
            Manwha/manhua readers, visual novel fans, pjsk, alnst<br>
   </p>
 
