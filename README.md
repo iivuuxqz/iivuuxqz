@@ -35,11 +35,11 @@
 
   <h2>.𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.˗ˏˋ ✸ ˎˊ˗. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁.𖥔 ܁ ˖˗ˏˋ ✸ ˎˊ˗.𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.</h2>
 
-  <h2>✦ BEFORE YOU FRIEND ✦</h2>
+  <h2>✦ ＩＮＴＥＲＡＣＴ ✦</h2>
 
   <p>
-         kinnies !<br>
-        MHA, Alnst, Black Butler, Pjsk fan<br>
+           Typology readers!!<br>
+           Manwha/manhua readers, visual novel fans, pjsk, alnst<br>
   </p>
 
   <h2>.𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.˗ˏˋ ✸ ˎˊ˗. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁.𖥔 ܁ ˖˗ˏˋ ✸ ˎˊ˗.𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.</h2>
