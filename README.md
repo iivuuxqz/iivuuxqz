@@ -62,7 +62,7 @@
 
   <h2>.𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.˗ˏˋ ✸ ˎˊ˗. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁.𖥔 ܁ ˖˗ˏˋ ✸ ˎˊ˗.𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.</h2>
 
-  <img src="https://static0.cbrimages.com/wordpress/wp-content/uploads/2022/04/bakugo-apology.jpg?q=50&fit=crop&w=825&dpr=1.5"
+  <img src="https://i.pinimg.com/1200x/52/5b/03/525b03e012d4d7f26b40d9087403b73e.jpg"
          width="800"
          height="400"
          alt="Bakugo Apology">
