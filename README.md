@@ -9,7 +9,7 @@
 <div align="center">
 
 <p align="center">
-  <img src="./izuku.svg?v=1" alt="So... Izuku, can I still catch up to you ?" width="900">
+  <img src="./typing.svg?v=2" alt="I'm the Deku who always does his best !" width="900">
 </p>
   
   <img src="https://images-ext-1.discordapp.net/external/XypLQUvQgppKyE9BBjrcH7iXzBnDmsY8QnvN2iO1GZk/%3Fwidth%3D1892%26format%3Dpjpg%26auto%3Dwebp%26s%3Dd2233826f1da157f0a7935d80b20247f8f1ab944/https/i.redd.it/todays-episode-was-genuinely-insane-wtf-peak-v0-wwkyawbf6huf1.jpg?format=webp&width=2216&height=1265"
