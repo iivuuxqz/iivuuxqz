@@ -28,17 +28,17 @@
         I get easily irritated, and have little to no self-restraint<br>
         I can be pretty blunt<br>
         I insult people 24/7<br>
-        I swear a lot<br>
-        Do not drag me into roleplays<br>
-        I will express myself freely if something is bothering me
+        I can be a little socially awkward and tend to be shy at first during in vcs especially<br>
+        I tend to reply late and have selective replies! I tend to struggle with understanding, so please be patient with me!!<br>
+        
   </p>
 
   <h2>.𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.˗ˏˋ ✸ ˎˊ˗. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁.𖥔 ܁ ˖˗ˏˋ ✸ ˎˊ˗.𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.</h2>
 
-  <h2>✦ ＩＮＴＥＲＡＣＴ ✦</h2>
+  <h2>✦ BEFORE YOU FRIEND ✦</h2>
 
   <p>
-        Izuku kinnies !<br>
+         kinnies !<br>
         MHA, Alnst, Black Butler, Pjsk fan<br>
   </p>
 
