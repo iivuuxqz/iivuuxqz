@@ -65,7 +65,7 @@
   <img src="https://i.pinimg.com/1200x/52/5b/03/525b03e012d4d7f26b40d9087403b73e.jpg"
          width="800"
          height="400"
-         alt="Bakugo Apology">
+         alt="Deku doing whatever he does">
 
 <p align="center">
   <img src="deku.svg?v=4" alt="𝚂𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝙸 𝚍𝚘 𝚏𝚎𝚎𝚕 𝚕𝚒𝚔𝚎 𝙸'𝚖 𝚊 𝚏𝚊𝚒𝚕𝚞𝚛𝚎... 𝙱𝚞𝚝 𝚎𝚟𝚎𝚗 𝚜𝚘, 𝙸'𝚖 𝚗𝚘𝚝 𝚐𝚘𝚗𝚗𝚊 𝚐𝚒𝚟𝚎 𝚞𝚙 !" width="900">
